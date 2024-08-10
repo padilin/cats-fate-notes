@@ -195,3 +195,25 @@ We will meet again at the park at night.
 Ozzie does spend some time in the day gathering info about the mines from other cats.
 
 `End Day 2`
+
+`Enter Day 3`
+
+Ozzie delays his leg healing in order to save a cat in his territory. Happens to get good information about mines tied to scarlet's burden in the burnt place.
+
+Night
+We meet at the park and with the news, we head to the burnt place.
+
+Scarlet is here and very Scarlet. She seems to be judging if we have the right to talk to the ghost.
+
+She decides (she's curious) we are worthy. We meet the miner who tells us about his families mines. Grandpapy was killed by jealous miners working for him. Could it be the soul of those?
+The map burnt up, but Scarlet memeorized it. She decides to guide us.
+
+Off we go!
+
+Bridge is the way across the river. I cat walk, but the others must cross this rickity old and trecherous side.
+Seems to have a large bat on the bridge... But we all made it, yumi stylishly take out the bat as she crosses.
+
+THE MINE IS CURSED AND EVIL, I FEEL LIKE A DOG IS BREATHING ON MY NECK
+Something is off. All are shook.
+ `End Day 3`
+ 
